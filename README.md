@@ -6,3 +6,7 @@ Maybe you wish me some luck? :)
 
 Uh...
 It's so hard...
+
+I'm so stupid! :c
+
+Or no?
